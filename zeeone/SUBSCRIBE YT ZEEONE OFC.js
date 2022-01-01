@@ -1,0 +1,6 @@
+/*
+Support bot dengan donasi
+
+
+Yang jual sc ini anak haram
+*/
